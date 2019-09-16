@@ -1,0 +1,2 @@
+# jajang21
+Trading
